@@ -1,3 +1,2 @@
-# davidbrunner86.github.io
-
+# Etwas zum philosophieren...
 Hello world!
