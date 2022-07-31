@@ -1,5 +1,9 @@
 # Etwas zum philosophieren...
 
+What´s that red button for?
+Oh well... for the time being, let´s try clicking it...
+
+
 
 # Farbenblind
 
