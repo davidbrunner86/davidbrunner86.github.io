@@ -32,3 +32,8 @@ Im Online Dating kann man in Perfektion erleben, wie sich die Wegwerfgesellschaf
 Es passt etwas nicht - einfach weggewischt! die nächste Möglichkeit wartet schon. Wieso versuchen etwas anzupassen oder "reparieren"? Es gibt wo etwas Neues. Es gibt so viele Möglichkeiten - man könnte ja etwas verpassen! Lieber die unzählichen Möglichkeiten weiter erforschen und ja keine Zeit verlieren oder verplempern.
 Wiell man diesen Zeitgeist erleben, bietet sich eine trendige Online-Dating App zum "wischen" besonders an. Und man kann das Gegenüber einfach jederzeit und spurlos löschen, als wäre nichts gewesen. Es ist ja nur Text und ein paar Bilder. Könnte genauso ein Bot sein.
 
+
+
+# #VogelStrauß-der-Schwurbler
+
+Ich kann nicht verstehen, was du sagst. Also bist du dumm.
