@@ -24,3 +24,11 @@ Es gibt das bekannte "Johari- Fenster". Es gibt immer etwas, das einem selbst be
 Aber es ist meiner Meinung nach auch auf viele Gruppierungen, Bevölkerungsschichten oder Geschlechter anwendbar.
 Man macht - je nach Zuordnung- so seine Erfahrungen und von diesem Standpunkt aus nur schwer oder gar nicht eine andere mögliche Perspektive.
 Ich persönlich finde hier zwischen den Geschlechtern (jetzt bezogen auf die beiden Archetypen Mann und Frau) gar große Unterschiede. Ohne zu werten.
+
+
+# Online Dating und Wegwerfgesellschaft und Kurzlebigkeit
+
+Im Online Dating kann man in Perfektion erleben, wie sich die Wegwerfgesellschaft und der kurzlebige Lebensstil etabliert hat.
+Es passt etwas nicht - einfach weggewischt! die nächste Möglichkeit wartet schon. Wieso versuchen etwas anzupassen oder "reparieren"? Es gibt wo etwas Neues. Es gibt so viele Möglichkeiten - man könnte ja etwas verpassen! Lieber die unzählichen Möglichkeiten weiter erforschen und ja keine Zeit verlieren oder verplempern.
+Wiell man diesen Zeitgeist erleben, bietet sich eine trendige Online-Dating App zum "wischen" besonders an. Und man kann das Gegenüber einfach jederzeit und spurlos löschen, als wäre nichts gewesen. Es ist ja nur Text und ein paar Bilder. Könnte genauso ein Bot sein.
+
