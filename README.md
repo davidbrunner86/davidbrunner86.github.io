@@ -37,3 +37,10 @@ Wiell man diesen Zeitgeist erleben, bietet sich eine trendige Online-Dating App 
 # #VogelStrauß-der-Schwurbler
 
 Ich kann nicht verstehen, was du sagst. Also bist du dumm.
+
+
+
+# Männer und deren Verbündeter, das Oxytocin
+
+Dating ist schwierig. Die meisten Frauen daten "nach oben" und filtern sehr kritisch aus. Als Mann ist man erfolgreich, wer sich gut präsentieren kann (und natürlich auch grundsätzlich schon gut da steht)
+Erfolgreich sind wohl jene, die gut blenden können. Sich gut verkaufen, mit der Frau flirten und sie um den Finger wickeln bis sie intim werden. Ab dem Zeitpunkt haben sie einen Verbündeten - das Oxytocin der Frau, die Gefühle der Verbundenheit und Verliebtheit auslöst und den Verstand benebelt. Vieles, das vorher die Verblendung verhüllt hat, ist nun nicht mehr nötig, da das Oxytocin dieses nun ausblendet. Nun wird entweder weiter an den Gefühlen gearbeitet oder der Mann sucht sich ein neues Ziel, weil die Eroberung ja geschafft war.
