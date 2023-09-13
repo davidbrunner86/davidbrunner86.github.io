@@ -44,3 +44,16 @@ Ich kann nicht verstehen, was du sagst. Also bist du dumm.
 
 Dating ist schwierig. Die meisten Frauen daten "nach oben" und filtern sehr kritisch aus. Als Mann ist erfolgreich, wer sich gut präsentieren kann (und natürlich auch grundsätzlich schon gut da steht)
 Erfolgreich sind wohl jene, die gut blenden können. Sich gut verkaufen, mit der Frau flirten und sie um den Finger wickeln bis sie intim werden. Ab dem Zeitpunkt haben sie einen Verbündeten - das Oxytocin der Frau, die Gefühle der Verbundenheit und Verliebtheit auslöst und den Verstand benebelt. Vieles, das vorher die Verblendung verhüllt hat, ist nun nicht mehr nötig, da das Oxytocin dieses nun ausblendet. Nun wird entweder weiter an den Gefühlen gearbeitet oder der Mann sucht sich ein neues Ziel, weil die Eroberung ja geschafft war.
+
+
+# Es gibt keine dummen Fragen
+
+Man sagt, es gibt keine dummen Fragen (nur dumme Antworten). Im monokausalen Kontext mag das durchaus stimmen. Fragen bedeutet Neugierde. Durch Neugierde kam der Mensch voran. Intelligente Menschen fragen viel und je mehr sie erfahren, desto mehr Fragen kommen potentiell. Sie fragen meist mehr als sie beaupten.
+Antworten sind da viel "gefährlicher" im Sinne der Behauptungen, Selbst-beweihräucherung und der Beharrnis, selbst die Wahrheit zu kennen.
+Es gibt also (vielleicht) keine dummen Fragen. Aber es gibt sehr wohl dumme Menschen, die Fragen stellen! Zu fragen ist also kein Freilos zur Intelligenz...
+
+
+
+
+
+# 2Tweet!
