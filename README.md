@@ -39,6 +39,21 @@ Wiell man diesen Zeitgeist erleben, bietet sich eine trendige Online-Dating App 
 Ich kann nicht verstehen, was du sagst. Also bist du dumm.
 
 
+# Lebensdauer  
+
+Mein Uropa hat täglich eine Schachtel Zigaretten geraucht und wurde 100 Jahre alt.  
+Gestorben ist er nicht an Krebs sondern beim Autounfall.  
+
+Das beweist: Rauchen ist nicht schädlich und verursacht keinen Krebs!  
+
+#VogelStrauß
+
+
+# Lebenserfahrung  
+
+"Ich mache das schon seit 20 Jahren so und habe entsprechende Erfahrung damit. Komm mir also nicht mit anderen Methoden oder Besserwisserei"  
+- " Man kann auch etwas 20 Jahre lang falsch machen...."   
+
 
 # Männer und deren Verbündeter, das Oxytocin
 
