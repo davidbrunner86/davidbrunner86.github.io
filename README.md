@@ -54,12 +54,9 @@ Das beweist: Rauchen ist nicht schädlich und verursacht keinen Krebs!
 "Ich mache das schon seit 20 Jahren so und habe entsprechende Erfahrung damit. Komm mir also nicht mit anderen Methoden oder Besserwisserei"  
 - " Man kann auch etwas 20 Jahre lang falsch machen...."   
 
+# Krone richten  
 
-# Männer und deren Verbündeter, das Oxytocin
-
-Dating ist schwierig. Die meisten Frauen daten "nach oben" und filtern sehr kritisch aus. Als Mann ist erfolgreich, wer sich gut präsentieren kann (und natürlich auch grundsätzlich schon gut da steht)  
-Erfolgreich sind wohl jene, die gut blenden können. Sich gut verkaufen, mit der Frau flirten und sie um den Finger wickeln bis sie intim werden. Ab dem Zeitpunkt haben sie einen Verbündeten - das Oxytocin der Frau, die Gefühle der Verbundenheit und Verliebtheit auslöst und den Verstand benebelt. Vieles, das vorher die Verblendung verhüllt hat, ist nun nicht mehr nötig, da das Oxytocin dieses nun ausblendet. Nun wird entweder weiter an den Gefühlen gearbeitet oder der Mann sucht sich ein neues Ziel, weil die Eroberung ja geschafft war.
-
+Hinfallen, aufstehen, Krone richten ... und weitermachen wie bisher?  
 
 # Es gibt keine dummen Fragen
 
@@ -70,5 +67,3 @@ Es gibt also (vielleicht) keine dummen Fragen. Aber es gibt sehr wohl dumme Mens
 
 
 
-
-# 2Tweet!
